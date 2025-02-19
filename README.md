@@ -71,3 +71,12 @@ Elegant lighting to create a productive ambiance.
 Build Your Dream Luxury Home with Alcka Developments
 At Alcka Developments, we specialize in designing and building high-end custom homes in the GTA. Whether you’re looking for modern elegance, timeless classics, or cutting-edge smart home features, our team ensures every detail is tailored to your vision.
 
+Contact Us:
+Kiruba
+Alcka Developments
+336 Main Street Markham N,
+Markham, ON L3P 1Z1
+416-919-9293
+info@alcka.ca
+https://alcka.ca
+
